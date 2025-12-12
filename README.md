@@ -1,4 +1,4 @@
-🌟 Hi, I'm Raj Patel
+# 🌟 **Hi, I'm Raj Patel**
 Data Scientist | ML Engineer | Automation Specialist | AI Solutions Builder
 
 I transform complex business problems into automated, scalable, and intelligent solutions.
