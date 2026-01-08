@@ -61,7 +61,7 @@ Expanding portfolio projects like ML recommendations & contract analysis
 
 📧 Email: rajpatel31300@gmail.com
 
-💼 LinkedIn: (https://www.linkedin.com/in/raj-patel-47ba70255/)
+💼 LinkedIn: (linkedin.com/in/raj-rsp-patel/)
 
 ⭐ Fun Facts
 
